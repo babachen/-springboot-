@@ -33,7 +33,7 @@
 
 ![image-20240719173243927](https://gitee.com/chenqinli123/farm/raw/master/images/image-20240719173243927.png)
 
-![img](file:///C:/Users/Administrator/AppData/Roaming/Tencent/Users/491650652/QQ/WinTemp/RichOle/{6$AZ@82F@M685V2X@6]}}D.png)
+![img](https://gitee.com/chenqinli123/farm/raw/master/images/xinzeng.png)
 
 ![image-20240721214832268](https://gitee.com/chenqinli123/farm/raw/master/images/image-20240721214832268.png)
 
